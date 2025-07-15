@@ -4,7 +4,7 @@
 📊 Focada em Análise de Dados e Desenvolvimento Backend  
 🚀 Em busca da primeira oportunidade na área tech  
 📍 Maragogi - AL  
-🖤 Apaixonada por tecnologia e aprendizado constante.
+🖤 Apaixonada por tecnologia e aprendizado contínuo.
 
 ---
 
